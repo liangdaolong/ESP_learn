@@ -1,4 +1,0 @@
-FK U
-Bitch
-
-
